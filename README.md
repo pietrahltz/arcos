@@ -1,2 +1,0 @@
-# arcos
-ARCOS E ANGULOS GE
